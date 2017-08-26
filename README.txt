@@ -1,0 +1,1 @@
+Tamanho usado nas imagens: 580 - 300
